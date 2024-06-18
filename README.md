@@ -1,1 +1,1 @@
-# Vertigo_VisualComfort
+# Vertigo Visual Comfort
